@@ -1,3 +1,3 @@
 **Assignment Title** Studio 1.1
 **Prompt** Make me an image of a large pastel mural on an old building of a group of people fighting against injustice. I want them to be protesting in a justice system, where people feel they should have more rights. This main message is to show how people have struggled with dealing with voices being silenced and help others to know its okay to protest. The subject matter includes different people getting arrested when they shouldn't be and people witnessing it. The style should be black and white, realistic, but with big and bold posters, making the reason for the protest stand out.
-**Reflection Link** You will add a link to the audio file (or add a comment mentioning that your reflection papers are in the folder)
+**Reflection Link**  My reflection papers are in the folder!
